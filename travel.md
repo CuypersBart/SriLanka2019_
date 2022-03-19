@@ -104,7 +104,7 @@ Options:
 - 🛵 Tuktuk drive 86km (2-3h)
 - 🏨 Ananya Beach Resort [Location](https://maps.app.goo.gl/P1bGpK9VzDB3BF4r8) 
 
-##Wed 31/07 Tangalle
+## Wed 31/07 Tangalle
 - Breakfast (included) at Ananya Beach Resort
 - 🏨 Ananya Beach Resort [Location](https://maps.app.goo.gl/P1bGpK9VzDB3BF4r8) 
 
